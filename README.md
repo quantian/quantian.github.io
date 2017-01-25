@@ -1,3 +1,1 @@
 # quantian.github.io
-
-XDXDXDXDXDXDXDDXDXDXDXDXDXDXDX
